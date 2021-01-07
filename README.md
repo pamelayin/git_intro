@@ -1,2 +1,1 @@
 Pamela Yin
-10
